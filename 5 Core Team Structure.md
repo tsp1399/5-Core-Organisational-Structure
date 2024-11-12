@@ -1,4 +1,4 @@
-# **Core Team Structure for Modern Accounting Firms**
+# **Five Core Team Structure for Modern Accounting Firms**
 
 ### **1. Document Purpose**
 
